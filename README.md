@@ -125,7 +125,6 @@ Both studies open avenues for further exploration:
 
 ## 📬 Contact  
 For discussions, feedback, or collaborations:  
-📧 Email: hiranharilal@outlook.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/hiranharilal)  
 
 ---
